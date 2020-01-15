@@ -2,6 +2,11 @@
 
 This is a daily updated file recording what Terry learns everyday.
 
+- 1/14/2020  
+Words: __claws, teeth__  
+Book reading: Where the wild things are
+
+
 - 1/13/2020  
 Words: __terrible, king__  
 
