@@ -2,6 +2,10 @@
 
 This is a daily updated file recording what Terry learns everyday.
 
+- 1/16/2020  
+Book reading: Where the wild things are  
+Terry can read the book with little help.
+
 - 1/15/2020  
 Words: __wild, hot__  
 Book reading: Where the wild things are
