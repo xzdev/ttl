@@ -2,6 +2,11 @@
 
 This is a daily updated file recording what Terry learns everyday.
 
+- 1/19/2020  
+Words: __add, *all (call, tall, ball, pall)__  
+Activity: Terry went to a hike.
+
+
 - 1/18/2020  
 Words: __rock, of, for__  
 Activity: Terry learned rock climbing.  
